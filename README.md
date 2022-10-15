@@ -1,0 +1,3 @@
+- 👋 Ola, Eu Sou @wandson88
+- Gosto de Codigo Forte/Sorce Code Sobre FNF/Friday Night Funkin,
+- Pc Virtual,Mobile,Etc.
